@@ -1,4 +1,4 @@
-
+bedwars Script secret is the best bedwars Script, featuring no cooldown and unlimited stamina. Safe and powerful for all your needs.
 
 
 
